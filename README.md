@@ -6,5 +6,5 @@ Una de las habilidades digitales más requeridas corresponde a la programación 
 
  Por:  
  Mireille Caballero Ramírez  
- Cesar Elias Castro  
- Karen Madrigal  
+ Cesar Elias Castro Soria   
+ Karen Lucía Gutiérrez Madrigal
